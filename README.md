@@ -1,2 +1,2 @@
-# ventasdecomputadorashenrri.github.io
+# ventasdecomputadorasjoel.github.io
 mi pagina web
